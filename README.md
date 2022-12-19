@@ -62,7 +62,7 @@ elles sont créées par de l'hostilité relationnelle, des colères refoulées..
 
 Les DOULEURS ARTICULAIRES persistantes peuvent tout aussi bien stocker
 
-des **toxiques mentaux** qu'aucune pommade ou poudre de perlinpinpin ne pourra corriger.
+des **toxiques mentaux** qu'aucune pommade ne pourra corriger.
 
 
 
@@ -90,7 +90,7 @@ le mécanisme de la marche.
 
 repos, l'hydratation, la nutrition...
 
-Photo aliment, eau, repos...
+`Photo aliment, eau, repos...`
 
 ****
 
@@ -116,7 +116,7 @@ Tant de choses se passent dans notre dos, n'est-ce pas ?
 
 ****
 
-Photo : Muscles + tendons = os
+`Photo : Muscles + tendons = os`
 
 L'équilibre dans cette sphère **** physique est primordiale pour
 
@@ -130,7 +130,7 @@ La partie «in-visible» sont les **aspects psycho-corporels** **que sont les** 
 
 
 
-Photo souffrances
+`Photo souffrances`
 
 Cela soulignent bien des  limites inconscientes et certains auto-sabotages.
 
@@ -176,7 +176,7 @@ Voici ce qui pourrait bien vous tre profitable.
 
 
 
-Ce travail est UNIQUE inutile pour ceux qui préfèrent se défoncer à coup de...pendant le week-end .
+Ce travail est UNIQUE, il ne s'adresse pas à qui préfèrent se défoncer à coup de...pendant le week-end .
 
 
 
@@ -188,7 +188,66 @@ Ce travail est UNIQUE inutile pour ceux qui préfèrent se défoncer à coup de.
 
 </details>
 
+2/2 (usb)
+
+<mark style="background-color:blue;">Demain il sera trop tard !</mark>
+
+Cher abonné-e
 
 
 
+Il ne reste plus qu'un jour pour profiter de l'offre muscu
 
+Ce service a été créer pour les personnes pressées et stressées toute l'année.
+
+
+
+Et parce que vous êtes un abonné précieux, vous&#x20;
+
+recevez cette offre spéciale.
+
+
+
+Le prix de cette formation est de 420 € , et vous&#x20;
+
+l'obtenez pour seulement 197 € !
+
+
+
+Cette remise de 223 € sur le prix de 420 $ est valable pour une durée limitée.
+
+limitée et se termine dans quelques jours.
+
+&#x20;
+
+<mark style="background-color:green;">Réservez votre place ici</mark>
+
+
+
+De plus, vous recevrez un rapport spécial GRATUIT en prime...
+
+" XXXX XXXXXX"
+
+
+
+D'une valeur de   €, c'est le vôtre sans frais supplémentaires.
+
+supplémentaire.
+
+Dans ce guide de   pages sur bbbbb     , vous allez
+
+découvrir :
+
+
+
+Page 6.
+
+
+
+Ce n'est pas tout&#x20;
+
+
+
+Dépêchez-vous, cette offre se termine vite !
+
+Cordialement.

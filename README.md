@@ -188,7 +188,7 @@ Ce travail est UNIQUE, il ne s'adresse pas à qui préfèrent se défoncer à co
 
 </details>
 
-2/2 (usb)
+2/2 (usb)   > séance perso > mail 1muscle >&#x20;
 
 <mark style="background-color:blue;">Demain il sera trop tard !</mark>
 
